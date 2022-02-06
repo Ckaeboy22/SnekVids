@@ -1,2 +1,3 @@
 # SnekVids
-stv.adolfkun.ga vids
+that was innopropiate
+
